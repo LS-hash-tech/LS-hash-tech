@@ -1,5 +1,2 @@
 -  Hi, I’m @LS-hash-tech or known as Layne
--  I’m interested in building an e-commerce website for luxury second hand clothing.
--  I’m currently learning coding to build my website
--  I’m looking forward to learn more within this second since I have no previous experience.
--  You can find me on one of my private profile on Instagram @alterabbdunk.
+-  Founder of Rentierre
