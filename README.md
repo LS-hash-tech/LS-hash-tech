@@ -1,3 +1,2 @@
 -  Hi, I’m @LS-hash-tech or known as Layne
--  Founder @ Rentierre
 -  Ops/sales oriented person working towards becoming a dev
