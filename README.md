@@ -1,2 +1,2 @@
 -  Hi, I’m @LS-hash-tech or known as Layne
--  Ops/sales oriented person working towards becoming a dev
+-  Mostly building within fashion-tech.
